@@ -8,5 +8,10 @@
 ʚɞ ⁺˖ ⸝⸝ ![](https://komarev.com/ghpvc/?username=SillyPuppyBoy&abbreviated=true&color=ffcdd0&style=plastic-plastic&label=Cutiesꨄ︎)    ʚɞ ⁺˖ ⸝⸝
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯𖹭ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}BYI}}$ </summary> text </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> text </details>
 
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> text </details>
+
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐹𝒜𝒩𝒟𝒪𝑀𝒮}}$ </summary> text </details>
+
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒮𝒯𝒜𝑀𝒫𝒮﹠𝐵𝐿𝐼𝒩𝒦𝐼𝐸𝒮 ⁽ᴬ ᴰᵁᴹᴾ⁾}}$ </summary> text </details>
