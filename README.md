@@ -9,8 +9,7 @@
 
 ૮ ˶′ ཅ ‵˶ ა
 
-<img width="1278" height="87" alt="1554-E936-C52-E-4-FE2-BCB2-C0-EF80-F870-F0" src="https://github.com/user-attachments/assets/37a21be4-b075-43ad-be4a-
-19a85167b92e" />
+<img width="1278" height="87" alt="1554-E936-C52-E-4-FE2-BCB2-C0-EF80-F870-F0" src="https://github.com/user-attachments/assets/37a21be4-b075-43ad-be4a-19a85167b92e" />
 
 ໒꒰ྀིっ˕ -｡꒱ྀི১
 
