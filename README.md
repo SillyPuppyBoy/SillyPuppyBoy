@@ -8,5 +8,5 @@
 ʚɞ ⁺˖ ⸝⸝ ![](https://komarev.com/ghpvc/?username=SillyPuppyBoy&abbreviated=true&color=ffcdd0&style=plastic-plastic&label=Cutiesꨄ︎)    ʚɞ ⁺˖ ⸝⸝
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}BYI}}$ </summary> text </details>
+<summary> ⎯⎯𖹭ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}BYI}}$ </summary> text </details>
 
