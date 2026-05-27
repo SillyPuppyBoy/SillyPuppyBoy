@@ -10,13 +10,13 @@
 ૮ ˶′ ཅ ‵˶ ა
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> text <br> text </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> ⊹ ʙᴏᴅɪʟʏ 17 <br> ⊹ ᴡᴇ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ, ᴏᴄᴅ, ᴅ.ɪ.ᴅ/ᴏꜱᴅᴅ, ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ᴀɴᴅ ᴏᴛʜᴇʀ ᴅɪꜱᴀʙɪʟɪᴛɪᴇꜱ ᴀɴᴅ ᴅɪꜱᴏʀᴅᴇʀꜱ! <br> ⊹ ᴛᴏɴᴇᴛᴀɢꜱ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ! <br> ⊹ ᴡᴇ ᴀʀᴇ ꜱɪʟʟʏ :3 <br> ⊹ ᴍᴇᴍᴏʀʏ ɪꜱꜱᴜᴇꜱ! (ᴠɪꜱᴜᴀʟ ᴍᴇᴍᴏʀʏ ᴄᴏɴɴᴇᴄᴛᴇᴅ ᴛᴏ ᴏɴᴇꜱ ᴀᴠᴀᴛᴀʀ/ɢɪᴛʜᴜʙ/ᴘꜰᴘ, ᴇᴛᴄ.)</details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> Pedophiles <br> T.R.A.S.H <br> Under 13 </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> ⊹ ᴘᴇᴅᴏᴘʜɪʟᴇꜱ <br> ⊹ ᴛ.ʀ.ᴀ.ꜱ.ʜ <br> ⊹ ᴜɴᴅᴇʀ 13 </details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐹𝒜𝒩𝒟𝒪𝑀𝒮}}$ </summary> text </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐹𝒜𝒩𝒟𝒪𝑀𝒮⁽ᴬ ᴰᵁᴹᴾ⁾}}$ </summary> ⊹ ᴏɴᴇ ᴘɪᴇᴄᴇ, ʟᴏᴠᴇ ᴀɴᴅ ᴅᴇᴇᴘꜱᴘᴀᴄᴇ, ꜱᴘɪᴅᴇʀ-ᴠᴇʀꜱᴇ, ꜱᴀɴʀɪᴏ, ᴍʏ ʟɪᴛᴛʟᴇ ᴘᴏɴʏ, ᴛʀɪɢᴜɴ ᴅᴇᴠɪʟ ᴍᴀʏ ᴄʀʏ, ᴘʀᴇꜱꜱᴜʀᴇ, ᴅᴇᴀᴅᴘʟᴀᴛᴇ, ɪ ʜᴀᴠᴇ ɴᴏ ᴍᴏᴜᴛʜ ᴀɴᴅ ɪ ᴍᴜꜱᴛ ꜱᴄʀᴇᴀᴍ, ᴠᴏᴄᴀʟᴏɪᴅꜱ, ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ, ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ, ɢʀᴇᴇᴋ ᴍʏᴛʜᴏʟᴏɢʏ, ᴇɢʏᴘᴛɪᴀɴ ᴍʏᴛʜᴏʟᴏɢʏ, ᴇᴘɪᴄ: ᴛʜᴇ ᴍᴜꜱɪᴄᴀʟ, ᴇɴɴᴇᴀᴅ, ʜᴏᴍɪᴄɪᴘʜᴇʀ, ʙʟᴀᴄᴋ ʙᴜᴛʟᴇʀ, ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ, ꜰɪᴠᴇ ɴɪɢʜᴛꜱ ᴀᴛ ꜰʀᴇᴀᴅʏ'ꜱ, ᴛᴏɪʟᴇᴛ ʙᴏᴜɴᴅ ʜᴀɴᴀᴋᴏ-ᴋᴜɴ, ᴏʙᴇʏ ᴍᴇ, ᴡʜᴀᴛ ɪɴ ʜᴇʟʟ ɪꜱ ʙᴀᴅ?, ᴋɪʟʟɪɴɢ ꜱᴛᴀʟᴋɪɴɢ, ᴍʏ ɢᴜɪʟᴅᴍᴀᴛᴇ ɴᴇxᴛᴅᴏᴏʀ <br> ⊹ ᴘʟᴜꜱ ᴍᴏʀᴇ ᴀɴɪᴍᴇꜱ, ɢᴀᴍᴇꜱ, ᴀɴᴅ ᴍᴀɴɢᴀ! </details>
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒮𝒯𝒜𝑀𝒫𝒮﹠𝐵𝐿𝐼𝒩𝒦𝐼𝐸𝒮 ⁽ᴬ ᴰᵁᴹᴾ⁾}}$ </summary> text </details>
