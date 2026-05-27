@@ -7,10 +7,9 @@
 
 ʚɞ ⁺˖ ⸝⸝ ![](https://komarev.com/ghpvc/?username=SillyPuppyBoy&abbreviated=true&color=ffcdd0&style=plastic-plastic&label=Cutiesꨄ︎)    ʚɞ ⁺˖ ⸝⸝
 
-<img width="1278" height="87" alt="1554-E936-C52-E-4-FE2-BCB2-C0-EF80-F870-F0" src="https://github.com/user-attachments/assets/37a21be4-b075-43ad-be4a-19a85167b92e" />
-
-
 ૮ ˶′ ཅ ‵˶ ა
+
+<img width="1278" height="87" alt="1554-E936-C52-E-4-FE2-BCB2-C0-EF80-F870-F0" src="https://github.com/user-attachments/assets/37a21be4-b075-43ad-be4a-19a85167b92e" />
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ʙᴏᴅɪʟʏ 17 <br> ⊹ ᴡᴇ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ, ᴏᴄᴅ, ᴅ.ɪ.ᴅ/ᴏꜱᴅᴅ, ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ᴀɴᴅ ᴏᴛʜᴇʀ ᴅɪꜱᴀʙɪʟɪᴛɪᴇꜱ ᴀɴᴅ ᴅɪꜱᴏʀᴅᴇʀꜱ! <br> ⊹ ᴛᴏɴᴇᴛᴀɢꜱ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ! <br> ⊹ ᴡᴇ ᴀʀᴇ ꜱɪʟʟʏ :3 <br> ⊹ ᴍᴇᴍᴏʀʏ ɪꜱꜱᴜᴇꜱ! (ᴠɪꜱᴜᴀʟ ᴍᴇᴍᴏʀʏ ᴄᴏɴɴᴇᴄᴛᴇᴅ ᴛᴏ ᴏɴᴇꜱ ᴀᴠᴀᴛᴀʀ/ɢɪᴛʜᴜʙ/ᴘꜰᴘ, ᴇᴛᴄ. <br> 𓏵 𓏼 ˎˊ˗</details>
