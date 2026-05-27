@@ -10,8 +10,11 @@
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> text </details>
 
+<p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> text </details>
 
+<p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐹𝒜𝒩𝒟𝒪𝑀𝒮}}$ </summary> text </details>
 
+<p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒮𝒯𝒜𝑀𝒫𝒮﹠𝐵𝐿𝐼𝒩𝒦𝐼𝐸𝒮 ⁽ᴬ ᴰᵁᴹᴾ⁾}}$ </summary> text </details>
