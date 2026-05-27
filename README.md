@@ -17,7 +17,7 @@
 
 °❀⋆.*:･°❀⋆.*:･°❀⋆.*:･°❀⋆.*:･
 
-⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+ྀི◟‿ ᛝྀིྀི
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ʙᴏᴅɪʟʏ 17 <br> ⊹ ᴡᴇ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ, ᴏᴄᴅ, ᴅ.ɪ.ᴅ/ᴏꜱᴅᴅ, ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ᴀɴᴅ ᴏᴛʜᴇʀ ᴅɪꜱᴀʙɪʟɪᴛɪᴇꜱ ᴀɴᴅ ᴅɪꜱᴏʀᴅᴇʀꜱ! <br> ⊹ ᴛᴏɴᴇᴛᴀɢꜱ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ! <br> ⊹ ᴡᴇ ᴀʀᴇ ꜱɪʟʟʏ :3 <br> ⊹ ᴍᴇᴍᴏʀʏ ɪꜱꜱᴜᴇꜱ! (ᴠɪꜱᴜᴀʟ ᴍᴇᴍᴏʀʏ ᴄᴏɴɴᴇᴄᴛᴇᴅ ᴛᴏ ᴏɴᴇꜱ ᴀᴠᴀᴛᴀʀ/ɢɪᴛʜᴜʙ/ᴘꜰᴘ, ᴇᴛᴄ. <br> 𓏵 𓏼 ˎˊ˗</details>
