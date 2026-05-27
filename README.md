@@ -10,10 +10,10 @@
 ૮ ˶′ ཅ ‵˶ ა
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> text </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> text <br> text </details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> text </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> Pedophiles <br> T.R.A.S.H <br> Under 13 </details>
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐹𝒜𝒩𝒟𝒪𝑀𝒮}}$ </summary> text </details>
