@@ -23,7 +23,7 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐵𝒴𝐼}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ʙᴏᴅɪʟʏ 17 <br> ⊹ ᴡᴇ ʜᴀᴠᴇ ᴀᴜᴛɪꜱᴍ, ᴏᴄᴅ, ᴅ.ɪ.ᴅ/ᴏꜱᴅᴅ, ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ᴀɴᴅ ᴏᴛʜᴇʀ ᴅɪꜱᴀʙɪʟɪᴛɪᴇꜱ ᴀɴᴅ ᴅɪꜱᴏʀᴅᴇʀꜱ! <br> ⊹ ᴛᴏɴᴇᴛᴀɢꜱ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ! <br> ⊹ ᴡᴇ ᴀʀᴇ ꜱɪʟʟʏ :3 <br> ⊹ ᴍᴇᴍᴏʀʏ ɪꜱꜱᴜᴇꜱ! (ᴠɪꜱᴜᴀʟ ᴍᴇᴍᴏʀʏ ᴄᴏɴɴᴇᴄᴛᴇᴅ ᴛᴏ ᴏɴᴇꜱ ᴀᴠᴀᴛᴀʀ/ɢɪᴛʜᴜʙ/ᴘꜰᴘ, ᴇᴛᴄ. <br> 𓏵 𓏼 ˎˊ˗</details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ᴘᴇᴅᴏᴘʜɪʟᴇꜱ <br> ⊹ ᴛ.ʀ.ᴀ.ꜱ.ʜ <br> ⊹ ᴜɴᴅᴇʀ 13 <br> 𓏵 𓏼 ˎˊ˗</details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒟𝒩𝐼}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ᴘʀᴇᴅᴀᴛᴏʀꜱ <br> ⊹ ᴛ.ʀ.ᴀ.ꜱ.ʜ <br> ⊹ ᴜɴᴅᴇʀ 13 <br> 𓏵 𓏼 ˎˊ˗</details>
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝐼𝒩𝒯𝐸𝑅𝐸𝒮𝒯𝒮}}$ </summary> ᵎᵎ 𐂯 <br> ⊹ ᴍʏᴛʜᴏʟᴏɢʏ <br> ⊹ ᴄʀɪᴘᴛɪᴅꜱ <br> ⊹ ᴅɪɴᴏꜱᴀᴜʀꜱ <br> ⊹ ꜱᴇᴀ ʟɪꜰᴇ <br> ⊹ ᴍᴜꜱʜʀᴏᴏᴍꜱ <br> ⊹ ʙɪᴏʟᴏɢʏ <br> ⊹ ᴘꜱʏᴄʜᴏʟᴏɢʏ <br> ⊹ ᴀɴɪᴍᴀᴛɪᴏɴ <br> ⊹ ꜰɪʟᴍ <br> ⊹ ᴀʀᴛ <br> ⊹ ꜱɪɢɴ ʟᴀɴɢᴜᴀɢᴇ <br> ⊹ ʟᴇᴀʀɴɪɴɢ ᴀ ʟᴀɴɢᴜᴀɢᴇ <br> ⊹ ᴛᴏʏꜱ ᴀɴᴅ ᴘʟᴜꜱʜɪᴇꜱ! <br> 𓏵 𓏼 ˎˊ˗</details>
