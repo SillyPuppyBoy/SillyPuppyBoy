@@ -40,3 +40,14 @@
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{hexcode to make colorful letters go here look up color picker and itll let you pick a color then put it here with a # infront of the numbers}𝒮𝒯𝒜𝑀𝒫𝒮﹠𝐵𝐿𝐼𝒩𝒦𝐼𝐸𝒮 ⁽ᴬ ᴰᵁᴹᴾ⁾}}$ </summary> ᵎᵎ 𐂯 <br> W.I.P <br> 𓏵 𓏼 ˎˊ˗</details>
+
+FROM NOW ON DELEATING ALL HATE AND DISCOURSE !
+
+Things to make clear;
+- Account was never meant to come off as sexual or NSFW
+- Account is not here to discuss discourse on whether being a puppy boy is purely NSFW
+- This account is made for aesthetics 
+- Terms used are not meant in sexual context
+-----------
+Now if you think otherwise on any of this stuff, don't bring it up with me. My intensions are pure and if you don't see it that way kindly DNI or not say anything at all ! 
+Respect my boundries!
