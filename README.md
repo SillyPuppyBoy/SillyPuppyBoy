@@ -48,6 +48,8 @@ Things to make clear;
 - Account is not here to discuss discourse on whether being a puppy boy is purely NSFW
 - This account is made for aesthetics 
 - Terms used are not meant in sexual context
+
 . _ .
+
 Now if you think otherwise on any of this stuff, don't bring it up with me. My intensions are pure and if you don't see it that way kindly DNI or not say anything at all ! 
 Respect my boundries!
