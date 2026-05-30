@@ -49,7 +49,7 @@ Things to make clear;
 - This account is made for aesthetics 
 - Terms used are not meant in sexual context
 
-. _ .
+(¬`‸´¬)
 
 Now if you think otherwise on any of this stuff, don't bring it up with me. My intensions are pure and if you don't see it that way kindly DNI or not say anything at all ! 
 Respect my boundries!
